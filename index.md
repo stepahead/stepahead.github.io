@@ -63,12 +63,12 @@ Sie sind einen Schritt voraus, wenn die Prozesse in Ihrem öffentlich rechtliche
 
 STEPS.Abfallwirtschaft unterstützt als Komplettlösung Körperschaften des öffentlichen Rechts, messbar erfolgreich und produktiv über alle Geschäftsbereiche hinweg zu arbeiten.
 
-### STEPS.Abfallamanagement
+### STEPS.Abfallmanagement
 
 Geld verdienen -
 durch die Beteiligung an den erreichten Ersparnissen Ihrer Kunden!
  
 Keine Abrechnung von Leistungen ist gerechter, als die Beteiligung an der erreichten Kostenreduktion beim Kunden. 
 Damit Sie zufriedene Kunden in der Wohnungswirtschaft haben, sind neben der Optimierung der Abfallkosten auch innerbetriebliche Prozesse umzusetzen. 
-Das STEPS.Abfallamanagement hilft Ihnen dabei!
+Das STEPS.Abfallmanagement hilft Ihnen dabei!
 
